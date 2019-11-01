@@ -1,0 +1,2 @@
+# solarmole.com
+DOMAINS
